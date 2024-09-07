@@ -16,16 +16,16 @@ Merek ini sudah lama dikenal dalam industri elektronik dan menawarkan magic com 
 ## <a href="https://mejikom.com/cosmos/" title="Mejikom cosmos">Mejikom cosmos</a>
 Merek ini terkenal dengan produk-produk rumah tangga yang berkualitas baik dan harga bersaing. Cosmos menyediakan berbagai pilihan magic com yang aman digunakan dan bebas dari bahan berbahaya seperti PFOA.
 
-## Magic com Sanken
+## Magic com <a href="https://www.sanken.co.id/">Sanken</a>
 Sanken menawarkan produk dengan desain menarik serta berbagai fungsi pemasakan yang lengkap, menjadikannya pilihan populer di kalangan ibu rumah tangga.
 
 ## Magic com Polytron
 Merek ini dikenal dengan teknologi pemanasan 3D pada rice cooker-nya, memberikan hasil masakan yang lebih baik dan merata.
 
-## Rice Cooker Han River
+## Rice Cooker <a href="https://hanriver.asia/">Han River</a>
 Merek ini menjadi pilihan bagi mereka yang mencari magic com hemat listrik dengan kapasitas kecil, ideal untuk keluarga kecil atau penggunaan pribadi.
 
-## Rice Cooker Mecoo
+## <a href="https://en.wikipedia.org/wiki/Rice_cooker">Rice Cooker</a> Mecoo
 Dikenal karena inovasinya dalam teknologi pemisahan karbohidrat dalam proses memasak nasi, Mecoo menarik perhatian konsumen yang peduli kesehatan.
 
 ## Reskuker GABOOR
